@@ -1,1 +1,1 @@
-# Exodia-S-ndico-do-Alphaville
+# Exodia-Sindico-do-Alphaville
